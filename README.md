@@ -1,3 +1,3 @@
 # Kokoa Clone 2021 sehun Ver.
 
-now starting!
+now starting! codeing is so fun!
